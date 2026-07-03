@@ -1,4 +1,4 @@
-# 
+# rivals Script smart is the best rivals Script, featuring anti-ban and no cooldown. Safe and powerful for all your needs.
 
 
 
